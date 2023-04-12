@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sytnikserhii22038@gmail.com.**
 
-- ⚡ Fun fact **I think, that not many middles or even seniors takes their job that serious, how I do it.**
+- ⚡ Fun fact **I think, that not many middles or even seniors takes their job that serious, how I do.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
